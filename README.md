@@ -1,3 +1,5 @@
+![Navy Blue Geometric Technology LinkedIn Banner](https://github.com/user-attachments/assets/552fffe4-d954-4903-b24a-2d696085ea73)
+
 # 💫 About Me:
 I'm currently pursing B.E in Information Technology
 
